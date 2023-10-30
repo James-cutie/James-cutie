@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @James-cutie
+- 👀 I’m interested in coding
+- 📫 Facebook: https://www.facebook.com/100091566887765
